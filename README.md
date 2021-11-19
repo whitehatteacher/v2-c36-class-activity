@@ -1,1 +1,1 @@
-# v2-c36-class-activity
+# v2-c36-student-class-activity
